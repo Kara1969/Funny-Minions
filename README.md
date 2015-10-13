@@ -1,0 +1,2 @@
+# Funny-Minions
+minions quotes, minion quotes minions, minion costume, minion movie, minion quotes, minion cupcakes, minion names, minion pictures, despicable me minions, minions banana, minion cake, minion wallpaper, minion banana, pictures of minions, minion images, minion costumes, despicable me minion, minion definition, minion gif, minions costume, banana minions, minions pictures, minion pics, funny minions, funny minion
